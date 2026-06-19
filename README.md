@@ -25,4 +25,4 @@
 
 ## How to Reach Me
 - Email: officialnzungulamalik@gmail.com
-- LinkedIn: 
+- LinkedIn: https://www.linkedin.com/in/malik-isaac-06b3363b1
